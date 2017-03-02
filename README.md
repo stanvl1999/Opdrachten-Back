@@ -1,8 +1,16 @@
 # Opdrachten-Back
 
-* Begonnen met opdracht 1 *
+* Stan begonnen met opdracht 1 *
 
-* Opdracht 1 af. *
+* Roman begonnen met opdracht 1 *
+
+* Stan opdracht 1 af *
+
+* Roman opdracht 1 af *
+
+* Beide met opdracht 2 begonnen.
+
+
 
 
 
