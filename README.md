@@ -1,3 +1,4 @@
+
 # Opdrachten-Back
 
 * Stan begonnen met opdracht 1 *
@@ -8,9 +9,15 @@
 
 * Roman opdracht 1 af *
 
-* Beide met opdracht 2 begonnen.
+* Beide met opdracht 2 begonnen*
 
+* Stan en Roman opdracht 3 beginnnen *
 
+* Stan en Roman hebben opdracht 3 af *
+ 
+* Stan en Roman laten opdracht zien aan Mnr. van de Woord *
 
+* Stan en Roman hebben opdracht 4 af * 
 
+* Inleveren*
 
