@@ -21,3 +21,6 @@
 
 * Inleveren*
 
+* ALLEBEI OPDRACHT 5 en 6 AFGEMAAKT *
+
+* starten met opdracht 7 *
